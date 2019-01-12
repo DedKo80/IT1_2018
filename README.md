@@ -26,19 +26,3 @@
 
 Труляль
 
-
-
-
-
-=======
-1
-2
-1
-2
-3
-4
-8
-весною в лесу очень хорошо
->>>>>>> ымымымымфмы
-
-ololololololololololollololololololololololol
